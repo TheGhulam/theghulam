@@ -6,4 +6,4 @@ i enjoy building things that live on the web and exploring how systems work unde
 
 in my spare time, i enjoy [reading](https://www.goodreads.com/user/show/104939610-ghulam), cooking and playing [chess](https://www.chess.com/member/ghulamx)
 
-up for a [chat?](https://cal.com/gahmed) or say hi on [𝕏](https://x.com/ghulamio)
+up for a coffee [chat](https://cal.com/gahmed)? or say hi on [𝕏](https://x.com/ghulamio)
